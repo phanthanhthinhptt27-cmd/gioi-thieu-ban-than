@@ -11,5 +11,5 @@ Giới thiệu bản thân.
 * **email:** phanthanhthinhptt27@gmail.com
 * **Facebook:** https://web.facebook.com/T.Thjnh7?locale=vi_VN
 ## Câu trích dẫn yêu thích:
-> "Khi ta ở chỉ là nơi đất ở,khi ta đi đất bổng hóa tâm hồn." 
+> "Khi ta ở chỉ là nơi đất ở,khi ta đi đất đã hóa tâm hồn." 
 > — Tiếng hát con tàu, Chế Lan Viên
