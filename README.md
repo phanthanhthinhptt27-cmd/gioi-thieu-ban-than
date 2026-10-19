@@ -2,9 +2,6 @@
 Giới thiệu bản thân.
 - **Họ và tên:** Phan Thanh Thịnh
 - **Mã số sinh viên:** 25S1020102
-![alt
-text](image url)
-
 - Tôi đang là sinh viên của trường Đại Học Sư Phạm, Đại Học Huế.  Thuộc khoa Tin Học khóa 68 và đang đơn vị hiện tại là Tin 2B
 ## Sở Thích:
 * Chơi thể thao : bóng đá, bóng chuyền,...
