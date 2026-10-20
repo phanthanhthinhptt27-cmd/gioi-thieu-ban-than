@@ -1,5 +1,5 @@
 # gioi-thieu-ban-than
-Giới thiệu bản thân.
+Giới thiệu bản thttps://theselfishmeme.co.uk/avatar-anh-meo-cute
 - **Họ và tên:** Phan Thanh Thịnh
 - **Mã số sinh viên:** 25S1020102
 - Tôi đang là sinh viên của trường Đại Học Sư Phạm, Đại Học Huế.  Thuộc khoa Tin Học khóa 68 và đang đơn vị hiện tại là Tin 2B
